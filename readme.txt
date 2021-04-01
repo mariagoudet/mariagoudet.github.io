@@ -1,1 +1,0 @@
-Proposal made by María Goudet for Escuela Fama
